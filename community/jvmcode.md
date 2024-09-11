@@ -1,7 +1,7 @@
 ## 🚀 Sobre mim
 
 Meu nome é João Victor, tenho 30 anos, estou em transição de carreira.
-Minha formação é engenharia civil, mas sempre me interessei pela área de tecnologia e atualmente quero me aprofundar sobre a área. 📚🙌🙌
+Sempre me interessei pela área de tecnologia e atualmente quero me aprofundar sobre a área. 📚🙌🙌
 
 ## Conecte-se comigo
 
